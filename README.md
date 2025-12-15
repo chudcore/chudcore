@@ -1,4 +1,4 @@
-[My Profile Image](assets/Switcheroo HD [Homestuck - Comic Dub] 1-53 screenshot.png)
+
 <!--
 **chudcore/chudcore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
