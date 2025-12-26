@@ -1,3 +1,4 @@
+i like yaoi i play yaoi vn yay so cool so awesome 
 ![My Profile Image](https://github.com/chudcore/chudcore/blob/main/Switcheroo%20HD%20%5BHomestuck%20-%20Comic%20Dub%5D%201-53%20screenshot.png)
 <!--
 **chudcore/chudcore** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
